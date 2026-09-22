@@ -1,4 +1,4 @@
-# Chapter 2: Brand Archetypes and Meaning
+# Chapter 2: Brand Archetypes and Meaning.
 
 A plain white T-shirt can be sold in many different ways because a product is never only a product. It is also a story, a signal, and a promise. A simple shirt can become a uniform for a careful professional, a badge of rebellion, a mark of care, or a blank canvas for creative self-expression. The shirt stays the same. The meaning changes.
 
